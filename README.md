@@ -21,7 +21,7 @@ I'm a final-year **B.Tech in Computer Science and Engineering** student at B.S. 
 
 ## 📫 How to Reach Me
 - **Email**: [gokulmanickam57@gmail.com](mailto:gokulmanickam57@gmail.com)
-- **LinkedIn**: [linkedin.com/in/your-linkedin-profile](https://www.linkedin.com/in/gokul-m-a2978b255)
+- **LinkedIn**: [linkedin.com/in/gokul-m-a2978b255](https://www.linkedin.com/in/gokul-m-a2978b255)
 
 ## 😄 Pronouns: He/Him
 
